@@ -1,0 +1,1 @@
+# template_avanced_pawer_point
